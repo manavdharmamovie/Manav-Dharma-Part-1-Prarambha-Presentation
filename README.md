@@ -1,1 +1,0 @@
-# Manav-Dharma-Part-1-Prarambha-Presentation
